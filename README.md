@@ -24,26 +24,26 @@ The sun was setting and they needed to go to bed.
 "Race you!" oli shouted 
 
 "You bet!" Pippa replied, they raced through the autumn woods down the pebbled 
-lane and stopped at Fairy Walkway. Fairy Walkway goy its name from its arc of 
+lane and stopped at Fairy Walkway. Fairy Walkway got its name from its arc of 
 woven ivy and trees that curl their curious branches around each other creating 
-a patched and woven door way. in between the ivy and vines beutiful flowers grew: 
-red ones, blue ones Lilac sunny yellow, rosy pink and deep violet with midnght 
-blue outer petals, soem big flowers and some tiny, just as big as your little 
+a patched and woven door way. In between the ivy and vines beautiful flowers grew: 
+red ones, blue ones, lilac, sunny yellow, rosy pink and deep violet with midnght 
+blue outer petals, some big flowers and some tiny, just as big as your little 
 finger nail.
 
-they entered the small hollow and aid hello to all the fairies and pixies, 
+They entered the small hollow and said hello to all the fairies and pixies, 
 the elfs sat in their own group, of course. (Elves are quite anti-social and 
-quiet). All the fairies and pixies hovered over, thier wings glinting in the 
+quiet). All the fairies and pixies hovered over, their wings glinting in the 
 twilight.
 
-The fairies hav slim and elegant bodies you feel you could almost snap them in 
-half, they have beautifulfaces that woudl take you breathe away. Pixies are also 
+The fairies have slim and elegant bodies you feel you could almost snap them in 
+half, they have beautiful faces that woudd take you breath away. Pixies are also 
 quite good looking with strong, sturdy wings and muscular chests that shine if 
 they catch the light, their faces are also very muscular, thay have strong, 
-handsome features that can stop passinf fairies in their tracks. Elves however 
-are quite grumpy looking with a threatening scowl that is scribbled on their 
-wrinkly faces in permanent marker. Even if elves are ina  relatively good mood
-(which they rarely are) teh marker doesn't wash off. This way the elves can be 
+handsome features that can stop passing fairies in their tracks. Elves however 
+are quite grumpy looking with a threatening scowl that is tattooed on their 
+wrinkly faces. Even if elves are in a  relatively good mood
+(which they rarely are) the tattoo doesn't wash off. This way the elves can be 
 rather crafty, they can tell lies like none you have ever heard!
 
 
