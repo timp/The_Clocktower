@@ -103,9 +103,9 @@ Inside it was pitch black, but John always carried a lamp around so he lit the
 lamp and pulled the door but left it ajar. He looked right and he saw a 
 staircase which he guessed was the extraordinarily long one that led right up to
 the top of the Clocktower. then in front of him he saw another tiny trap door, 
-yet it was a sort of circular door with an indented edge, just like a cogg he 
+yet it was a sort of circular door with an indented edge, just like a cog he 
 thought. John tugged and pulled and yanked but the door _wasn't_ going anywhere. 
 "Maybe it was locked?" but there was no key hole! "Maybe ivy and foliage blocked 
 it from the other side, because ther certainly wasn't any on this side." thought 
-John. So he kept on trying and trying until at _last_ with one tremendous tugg 
-he pulled the cogg door open.  
+John. So he kept on trying and trying until at _last_ with one tremendous tug 
+he pulled the cog door open.  
