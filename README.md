@@ -158,7 +158,19 @@ that that was the boy on the branch! And just out of curiosity he tried to see
 whether the boy had a chain, he did it was another half-heart and it said 
 "Pippa" with an obvious picture of the girl in his arms. 
 
-Worried that the girl, who he guessed was called Pippa, woudl wake up John 
+Worried that the girl, who he guessed was called Pippa, would wake up John 
 hurried back through the trees and over the hill, past the lake and back where 
 he started. 
+
+John had less heaving and pulling to do this time because the last time he had 
+eased the door slightly._Creeek_ John made sure he shut the door very firmly 
+before opening the next one and slipping through it, mind you he was carrying 
+the girl, who was, luckily, still sleeping through all of this!
+
+No one was up still, seeing as it was the Blessing of the Clocktower day. 
+This is an annual day that happens every spring, so everyone has a three hour
+lie in. John padded through the empty village, every now and then glancing down 
+at the beautiful girl who lay unconscious in his tired arms. 
+
+
 
