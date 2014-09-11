@@ -172,5 +172,32 @@ This is an annual day that happens every spring, so everyone has a three hour
 lie in. John padded through the empty village, every now and then glancing down 
 at the beautiful girl who lay unconscious in his tired arms. 
 
+"How long does it take you old-old-old person" John's wife screached. John was 
+still closing the door, he had his back to his wife and was smiling smuggly. 
+
+"What is it you ol-" she stopped, "You've found one ! Let's see!". John brought 
+her over to the old lady lyinf in her rickety old bed. "where, where did you 
+find her? she said with a certain awe in her croaky voice. John just tapped his
+nose suspiciously at he question. 
+
+"She's certainly a looer, let's put her to bed!" John's wife, Doriene said. So
+they tucked the girl up in the spare bed, turned out the light and went into the 
+kitchen, right out of ear shot.
+
+"Doriene she had a neck chain" John said inquireingly. 
+
+"Yes, go on." she said suspiciously. 
+
+"Wellit - there was a boy where I found her too. They both had connecting love 
+hearts, one (the one on the girls neck) said _Oli_ and had an exact engravement 
+of the boy and the other one (the one round the boy's neck) had the name _Pippa_
+engraved and an exact picture of her!" John said gulping at the end. 
+
+"Well who gives a damn about the boy? But the girl" Doriene said slowly, "The 
+girl, you mean to say, no you mean she's got a name!" she said excitedly.
+
+"Yes, Pippa!" John said.
+
+"Phew! that saves us having to figure one out!" she said releived.
 
 
