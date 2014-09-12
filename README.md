@@ -198,6 +198,27 @@ girl, you mean to say, no you mean she's got a name!" she said excitedly.
 
 "Yes, Pippa!" John said.
 
-"Phew! that saves us having to figure one out!" she said releived.
+"Phew! that saves us having to figure one out!" she said relieved.
+
+
+
+Pippa sat and the flopped back down again, but wait, the old oak tree didn't 
+make a disturbing creaking noise whenever you sit up. she lay down in the hot, 
+uncomfortable covers and gaxed up at the ceiling. A complicated network of 
+spidery cracks that creep their way through the disheveled plaster. Pippa didn't 
+understand, she didn't understand anything. Why was she here? Why was the place 
+so dismal? She looked down at her chest, luckily the chain was still there, it 
+was the only thing she owned, except her straw hat and she loved them both. She 
+knew the hat was still on here head, she could feel it. Pippa sat up and the bed 
+made another freaky screach. She looked mournfully down at the broken heart, and 
+it reminded herhow broken her's was. Tears started swellig in her ocean blue 
+eyes, they rolled away, down her cheek just like Oli had done, she hoped he 
+would come to this queer place ane day and fetch her from this prison. But Pippa 
+wasn't one of those girls who expect their prince to fetch them and waste away 
+their days waiting for them. 
+
+Pippa decided to get out of this horrid bed and go and explore. She didn't know 
+what house this was or anything so she opened the door and tried to be merry 
+even though she was in a black hole of emotional agony.
 
 
