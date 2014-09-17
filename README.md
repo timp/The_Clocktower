@@ -7,7 +7,7 @@
 
 Once Upon a fairy tale day a girl and a boy lay down on crisp emerald green 
 grass, gazing up at a cool blue sky, misty clouds spread themselves out 
-on the picturesque screne
+on the picturesque scene
 
 "Pippy, What if something happens, like something bad?"
 
@@ -21,25 +21,25 @@ tear Oli from Pippa or Pippa from Oli; or so they thought...
 
 The sun was setting and they needed to go to bed.
 
-"Race you!" oli shouted 
+"Race you!" Oli shouted 
 
 "You bet!" Pippa replied, they raced through the autumn woods down the pebbled 
 lane and stopped at Fairy Walkway. Fairy Walkway got its name from its arc of 
 woven ivy and trees that curl their curious branches around each other creating 
 a patched and woven door way. In between the ivy and vines beautiful flowers grew: 
-red ones, blue ones, lilac, sunny yellow, rosy pink and deep violet with midnght 
+red ones, blue ones, lilac, sunny yellow, rosy pink and deep violet with midnight 
 blue outer petals, some big flowers and some tiny, just as big as your little 
 finger nail.
 
 They entered the small hollow and said hello to all the fairies and pixies, 
-the elfs sat in their own group, of course. (Elves are quite anti-social and 
+the elves sat in their own group, of course. (Elves are quite anti-social and 
 quiet). All the fairies and pixies hovered over, their wings glinting in the 
 twilight.
 
 The fairies have slim and elegant bodies you feel you could almost snap them in 
-half, they have beautiful faces that woudd take you breath away. Pixies are also 
+half, they have beautiful faces that would take you breath away. Pixies are also 
 quite good looking with strong, sturdy wings and muscular chests that shine if 
-they catch the light, their faces are also very muscular, thay have strong, 
+they catch the light, their faces are also very muscular, they have strong, 
 handsome features that can stop passing fairies in their tracks. Elves however 
 are quite grumpy looking with a threatening scowl that is tattooed on their 
 wrinkly faces. Even if elves are in a  relatively good mood
@@ -57,7 +57,7 @@ Pippa scrambled into bed, which was in a hollow tree in two leaves sewn together
 with ivy vines to make a sleeping bag. The tree was cosy with a lamp lit by a 
 little glow worm in a glass jam jar. 
 
-"Night Pippi!" Oli called from his bed in teh same big old oak tree on a 
+"Night Pippi!" Oli called from his bed in the same big old oak tree on a 
 branch-bunk just above Pippa's hollow. 
 
 "Night Oli!" Pippa called in response. 
@@ -106,9 +106,9 @@ the top of the Clocktower. then in front of him he saw another tiny trap door,
 yet it was a sort of circular door with an indented edge, just like a cog he 
 thought. John tugged and pulled and yanked but the door _wasn't_ going anywhere. 
 "Maybe it was locked?" but there was no key hole! "Maybe ivy and foliage blocked 
-it from the other side, because ther certainly wasn't any on this side." thought 
+it from the other side, because there certainly wasn't any on this side." thought 
 John. So he kept on trying and trying until at _last_ with one tremendous tug 
-he pulled the cog door open.  
+he pulled the cog door open. 
 
 On the other side it appeared to be night time. every thing was dark, the moon 
 shone through the magnificent trees. John assumed it was an entirely different 
@@ -121,34 +121,34 @@ creep over you like hands about to kill, the way the moon reflects on the
 shimmering lake that rushes down the steep hill side. Now John was right at the 
 top of the hill he could see everywhere around. At the bottom he could see a 
 small forest with an arch of plants for the entrance, a little pebbled path led 
-up to it. "Tha looks nice." he thought. The rest of the view was stunning, he 
+up to it. "That looks nice." he thought. The rest of the view was stunning, he 
 could see forests and lakes, bushes with gorgeous looking berries and mountains
 like something out of a fairytale. 
 
 John followed the narrow path, his long beard billowing in the wind. It was dark 
 but John came prepared, he had his lamp. He could hear little chuckles coming
-from the woods and the occasional tit-tawoo from an owl high up in the tree tops 
+from the woods and the occasional tit-ta-woo from an owl high up in the tree tops 
 and the tiny scuttling of squirrels or mice, or even rabbits, sometimes he heard 
 a crunch or a snap from a fox or badger or some other animal. 
 
 Zz yhh grizzle as John stepped through the arc that was the fairy walkway, he 
 could hear odd sorts of snoring noises. "Ahah!"thought John. But when he stepped 
-in to the hollwo all he could see was sleeping Fairies and Pixies, and what he 
+in to the hollow all he could see was sleeping Fairies and Pixies, and what he 
 guessed were Elves. He cautiously crept up to them, they immediately turned 
 round. They were skowling fiercely, John didn't know whether this was normal or 
 whether they were extremely angry! He thought for a moment and then said 
 anxiously "D-d-doy-you know of an-y git-l around h-here?" He stammered. The 
 Elves replied gruffly "Yes, in the hollow tree. " The biggest one (he looked 
-like the leader) said. "Th-ththank you!" he said with an element of victory 
+like the leader) said. "Th-th-thank you!" he said with an element of victory 
 mixed with fear in his voice, for the Elves were _not_ very welcoming, at all. 
 
-What he needed to find was a hollwo tree, fairley big so it could fit a human 
+What he needed to find was a hollow tree, fairly big so it could fit a human 
 girl in. A few metres away he saw one! "Ahah!" he chuckled "I done it!" John saw 
 a little huddled figure in a massive oak tree making sort-of  sniffly, sleeping 
 noises. Above her a boy lay on a branch, he looked like he was about to fall off. 
 
 John lifted the girl, who was in fact very pretty, with long honey coloured hair 
-that flowed over her resting shoulders. The boy on teh branch was also rather 
+that flowed over her resting shoulders. The boy on the branch was also rather 
 good looking with dark treacle coloured hair and skin like burned caramel. The 
 girl had golden brown skin. They must catch the sun a lot here John thought. 
 The girl had a little gold chain around her neck with a half love heart in the 
@@ -172,23 +172,23 @@ This is an annual day that happens every spring, so everyone has a three hour
 lie in. John padded through the empty village, every now and then glancing down 
 at the beautiful girl who lay unconscious in his tired arms. 
 
-"How long does it take you old-old-old person" John's wife screached. John was 
-still closing the door, he had his back to his wife and was smiling smuggly. 
+"How long does it take you old-old-old person" John's wife screeched. John was 
+still closing the door, he had his back to his wife and was smiling smugly. 
 
 "What is it you ol-" she stopped, "You've found one ! Let's see!". John brought 
-her over to the old lady lyinf in her rickety old bed. "where, where did you 
+her over to the old lady lying in her rickety old bed. "where, where did you 
 find her? she said with a certain awe in her croaky voice. John just tapped his
 nose suspiciously at he question. 
 
-"She's certainly a looer, let's put her to bed!" John's wife, Doriene said. So
+"She's certainly a looker, let's put her to bed!" John's wife, Doriene said. So
 they tucked the girl up in the spare bed, turned out the light and went into the 
 kitchen, right out of ear shot.
 
-"Doriene she had a neck chain" John said inquireingly. 
+"Doriene she had a neck chain" John said inquiringly. 
 
 "Yes, go on." she said suspiciously. 
 
-"Wellit - there was a boy where I found her too. They both had connecting love 
+"Well - it - there was a boy where I found her too. They both had connecting love 
 hearts, one (the one on the girls neck) said _Oli_ and had an exact engravement 
 of the boy and the other one (the one round the boy's neck) had the name _Pippa_
 engraved and an exact picture of her!" John said gulping at the end. 
@@ -204,21 +204,76 @@ girl, you mean to say, no you mean she's got a name!" she said excitedly.
 
 Pippa sat and the flopped back down again, but wait, the old oak tree didn't 
 make a disturbing creaking noise whenever you sit up. she lay down in the hot, 
-uncomfortable covers and gaxed up at the ceiling. A complicated network of 
-spidery cracks that creep their way through the disheveled plaster. Pippa didn't 
+uncomfortable covers and gazed up at the ceiling. A complicated network of 
+spidery cracks that creep their way through the dishevelled plaster. Pippa didn't 
 understand, she didn't understand anything. Why was she here? Why was the place 
 so dismal? She looked down at her chest, luckily the chain was still there, it 
 was the only thing she owned, except her straw hat and she loved them both. She 
 knew the hat was still on here head, she could feel it. Pippa sat up and the bed 
-made another freaky screach. She looked mournfully down at the broken heart, and 
-it reminded herhow broken her's was. Tears started swellig in her ocean blue 
+made another freaky screech. She looked mournfully down at the broken heart, and 
+it reminded her how broken her's was. Tears started swellig in her ocean blue 
 eyes, they rolled away, down her cheek just like Oli had done, she hoped he 
-would come to this queer place ane day and fetch her from this prison. But Pippa 
+would come to this queer place any day and fetch her from this prison. But Pippa 
 wasn't one of those girls who expect their prince to fetch them and waste away 
 their days waiting for them. 
 
 Pippa decided to get out of this horrid bed and go and explore. She didn't know 
 what house this was or anything so she opened the door and tried to be merry 
 even though she was in a black hole of emotional agony.
+
+"Hello!" Pippa said to the jostling village folks. They murmured and whispered, 
+Pippa guessed they were shocked that a new person was here. But everyone smiled
+and Pippa over heard some old lady say to another "She's ours Miranda, John found 
+her, he won't say where though!"
+
+"Personally Doriene I think she's lovely, and that old John's been searching for 
+donkey's years!" Miranda replied. 
+
+Pippa skipped past all the houses until she came to the Clock Tower. Everything
+was the same, ordinary and generally boring, except the Clock Tower. It loomed 
+over everybody as though it was a god watching over everybody. 
+
+Just then Pippa heard a man say something about her, he mentioned her name. She 
+spun round and looked thoughtfully at him. He said to another old man that she 
+was called Pippa, _tick_ and he said she was _his_ *cross!* The other man said 
+something like "Nice find John". Aha! It all fitted the old lady, Doriene, said 
+that John had found Pippa and this man was called John, so they were husband 
+and wife!
+
+Pippa's honey coloured hair trickled like a lake of caramel in the light breeze. 
+Her eyes shoen just like a rare stone in the sunshine.
+
+Everybody stopped and stared at the girl who John and Doriene had claimed was 
+their foundling as she gazed up at the village's pride and glory. 
+The Clock Tower. 
+
+Months past and the whole village adored Pippa, yet she always, secretly, in her 
+forever broken heart, longed to go back home, where everything is a story and 
+a fairy tale. You see, where Pippa used to live was a book. she is a fairy tale, 
+a character from a child's bedtime story, so she will never grow up in the human 
+world. 
+
+The past fw months Pippa had been sleeping in the ramshackle house with John 
+and Doriene, they treated her as though she was their child, pippa didn't mind 
+really but she cried sorrowfully every night. 
+
+On one very unexpected day news came around, and first to Pippa seeing as she 
+lived with them, that Doriene, after all these years was pregnant. As soon as 
+John and Doriene knew they despised Pippa immediately. They banished her from 
+their home and Pippa huddled up in the town square at night shivering and 
+weeping more than ever. She couldn't bare it here any longer, but she had to. 
+
+Months grew by and John and Doriene got more evil. Years and they got worse, 
+their baby, who they named Melificent, grew and grew and when she was old enough 
+to understand that Pippa was the village sweetheart she, like her parents, 
+loathed her with all her hatred. 
+
+Melificent was the same age as pippa now, because as I said Pippa never grows 
+up. She had long jet black hair and dark scowling raven's eyes, which were quite 
+a contrast with Pippa's turquoise, marine blue ones. Melificent always wore black 
+or grey. Pippa thought this shows her mood a lot of the time, but she'd never 
+such a thing out loud. Pippa always wore the same bright coloured dress with sea
+blue embroidered flowers and butterflies on and a lilac patterned hem.
+
 
 
