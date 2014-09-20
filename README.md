@@ -3,7 +3,7 @@
 ### A Fairy Tale Adventure
 
 ## Flora Pizey
-####Friday 5th September 2014
+###Friday 5th September 2014
 
 Once Upon a fairy tale day a girl and a boy lay down on crisp emerald green 
 grass, gazing up at a cool blue sky, misty clouds spread themselves out 
@@ -64,7 +64,7 @@ branch-bunk just above Pippa's hollow.
 
 Meanwhile, while Pippa nad oli were going to bed, people were waking up 
 somewhere not so far away on another world completely. 
-Lots of people lived there, normal people and a normal villag. The village 
+Lots of people lived there, normal people and a normal village	. The village 
 people were always going about their jobs normally every single day. Some of 
 the folks wanted something exciting to happen for once, but it never did. 
 
@@ -241,7 +241,7 @@ that John had found Pippa and this man was called John, so they were husband
 and wife!
 
 Pippa's honey coloured hair trickled like a lake of caramel in the light breeze. 
-Her eyes shoen just like a rare stone in the sunshine.
+Her eyes shone just like a rare stone in the sunshine.
 
 Everybody stopped and stared at the girl who John and Doriene had claimed was 
 their foundling as she gazed up at the village's pride and glory. 
@@ -253,8 +253,8 @@ a fairy tale. You see, where Pippa used to live was a book. she is a fairy tale,
 a character from a child's bedtime story, so she will never grow up in the human 
 world. 
 
-The past fw months Pippa had been sleeping in the ramshackle house with John 
-and Doriene, they treated her as though she was their child, pippa didn't mind 
+The past few months Pippa had been sleeping in the ramshackle house with John 
+and Doriene, they treated her as though she was their child, Pippa didn't mind 
 really but she cried sorrowfully every night. 
 
 On one very unexpected day news came around, and first to Pippa seeing as she 
@@ -275,5 +275,120 @@ or grey. Pippa thought this shows her mood a lot of the time, but she'd never
 such a thing out loud. Pippa always wore the same bright coloured dress with sea
 blue embroidered flowers and butterflies on and a lilac patterned hem.
 
+It was spring in the village and everyone was preparing for the Annual Blessing 
+of the Clock Tower, which was taking place tomorrow. Everyone was hustling and 
+jostling preparing great meals, practising performances for the great 
+banquet, and sewing new dresses and stitching suits for the men, some were 
+rehearsing speeches fro the ceremony and others were putting up banners.
 
+Pippa was helping decorate the marquee with posies of gorgeous flowers and 
+laying candles out on the picnic tables when a bony finger tapped her on the 
+shoulder. She turned round to see Melificent smiling fakely at her. She was 
+wearing a dark dress that trailed after her like a wedding dress except much more sinister and gloomy. 
+
+"Hello Melificent!" Pippa said trying not to sound like she was dreading what 
+Melificent was about to say. 
+
+"I have a present for you" she said in her sharp forceful voice, yet this time 
+there an was an element of kindness in there somewhere. Pippa trailed after her, 
+trying not to step on her extravagant train. 
+
+When they reached Melificent's house the door was opened abruptly she didn't 
+even knock. John was standing in the doorway, he smiled politely and Pippa 
+smiled back but she saw a glint of excitement in his eyes, but then it vanished. 
+Melificent showed her through to the living room. She gestured to Pippa to sit 
+on one of the faded couches. Pippa did, it squeaked as she did so. At this point 
+Pippa was a bit puzzled. Why would Melificent, of all people, give her mortal 
+enemy a surprise present? At that moment John came in holding a cone shaped 
+parcel wrapped in brown paper. John and Melificent exchanged glances, Pippa 
+couldn't tell what they were so merry and smiley about. She could not 
+understand why. She was starting o get suspicious. 
+
+"Here, open it Pips" Melificent said too kindly to be true. So Pippa started to 
+unwrap the massive parcel. She began to see something red and she touched it, it 
+was soft and it felt like the most expensive velvet in the whole village!
+
+Pippa did as she was told and slipped on the amazing dress for size. It fitted her perfectly. She loved it but she knew something just wasn't right. 
+
+John and Melificent told her to wear it tomorrow, they said that they would keep it safe until then. 
+
+The next day everybody had a three hour lie in and then got up all merry and 
+excited. People did the last finishing touches to the marquee and then went 
+back home to get dressed up. 
+
+"Aah Pippa!" a kind voice came from behind her. 
+
+"Oh hello Melificent!" she said trying to sound delighted. 
+
+"Come on, lets go and dress you up!" Melificent said as though Pippa was her 
+dolly. 
+
+Melificent was already dressed up in a floating frock with puffed sleaves and 
+silver embroidery on the collar and hem. Her hair was scraped back into a tight 
+knot at the top of her head. 
+
+"Come in you two!" Doriene said warmly, yet she looked somewhat troubled just 
+the same. They all sat down in the living room and John fetched the dress from Melificent's room. 
+
+"Would you like to change in darling Melificent's room, dear?" Doriene said with 
+an air of excitement in her voice. 
+Pippa changed into the velvet dress, something was different though, the dress was still velvet and it still had the satin ribbon round the waist, but it felt 
+slightly heavier. Pippa looked down. "Oh, we attached a new hem dear" John said 
+because he had seen her look down. 
+
+"Yes, we thought the other one was a bit to normal!" Melificent said quickly.
+So they tied Pippa's hair in a bun and wrapped the matching ribbon on that they had also given her and she slipped on the tiny ballet pumps and they all went to do the blessing of the Tower. 
+
+The Blessing of the Tower is where every family in the village goes up the 
+extremely long staircase and looks out the Clock Tower window. The rest of the 
+village cry the words "Bless he Clock Tower and the People for ever more".
+
+This year John and his family had said they would all go up together. Pippa 
+agreed but every minute Pippa's suspicion was rising. They had all despised her since the day Melificent was born! Why were they suddenly doling out presents and considering her one of the family again? Pippa thought. 
+
+After almost every family had walked up the terrific staircase and made their 
+wish it was a little orphan boy's turn, Kit he was called. He ran right up the stairs, so eager to make his wish, Kit popped his had out of the window and looked down at the village below, practically specs so hard to see. They all chanted the same words, then Kit had to make a wish, most people wished for gold or riches. 
+They rarely came true, he thought, because nothing exciting ever happens in this village. Kit closed his eyes and wished. He wished deep down in his heart to be able to put something right when it was about to go wrong. 
+
+After Kit it was John, Doriene, Melificent and Pippa's turn. They all padded up the tiring staircase and looked out the already open window. Melificent probably wished for new dresses, Doreine probably wished for new knitting needles and John, well who knows!
+But when it came to Pippa's turn she wished and hoped with all her soul that one day she would return to Oli and where she used to live. 
+
+Then something very peculiar happened. Everyone stopped putting on their fake smiles and kindness and Melificent pursed her lips and scowled, John frowned and Doriene looked spitefully at pippa again. 
+Melificent whipped out a matching blood red velvet strip and she tied it firmly 
+round Pippa's mouth "Otoffmmblur hulp!" Pippa tried to scream but failing. Then John liftd Pippa's light body into a gap in the cog works and Pippa began twisting and turning, spinnign and whirling, she couldn't stop!
+
+"The gag matches the dress!" Melificent said smiling, they all turned and walked down the spiral staircase. Pippa watched her life slip away for she knew that if the clock tower didn't chime the whole village would freeze and go grey, so she was trapped 
+swirling in this prison, she was a cog just a hopeless, lifeless cog. She realised what a fool she had been falling into their trap and now she was in a life prison 
+never to see the light of day again. 
+
+By the time Melificent, John and Doriene came down everyone was already tucking into the marvellous banquet and those who weren't quite there yet didn't count how many people came down from the Clock Tower, except one: Kit. 
+
+Oli was sitting head in hands crying his way through the night. He asked the Elves (who were the only ones still awake at midnight) for the trillionth time to swear on their soul that they didn't tell _any_ one where Pippa slept. 
+
+Oli had gone on a diet of leaves and all the types of berries that people usually avoid since Pippa left. It had been fifteen years since, yet every day and every night he made the Elves swear on their lives they hadn't seen anyone take her. Of course they said no, but they were lying through their coffee coloured teeth. 
+
+Oli decided he was going to go for a midnight stroll. He went to where he and Pippa used to gaze at the clouds, on the hillside. 
+
+When he got there Oli spotted something he hadn't ever seen before: a door. Oli went to investigate. He managed to yank it open. It was dark in here too but it was an enclosed 
+space with wooden walls. In front of him Oli saw another set of doors. He pulled them both open. It wasn't night here, it was about midday and he saw lots of people gathered in a big marquee tent. Bunting hung all around and Oli realised he had just stepped out of a Clock Tower. 
+
+Oli went over to a boy of about eight and he was reading a fairytale book. 
+
+"Excuse me?" Oli said politely. 
+
+"Hello!" the boy said back "I'm Kit, who are you?" he said. 
+
+"Oli! Nice to meet you" Oli replied "Have you seen or heard of a girl called Pippa?" he said. 
+
+"Yes" Kit said in a more hushed tone "I'm the only one who knows this but she is in the Clock Tower!" Kit whispered. "Come on" Kit said and showed Oli through and up some stairs that Oli had not noticed. 
+
+When they reached teh top Oli stopped and gauped and then cried "Pippi!". 
+
+"Oli!" the twirling girl shrieked. Pippa was dancing ballet and couldn't stop. She explained to Oli about how the Clock Tower powered the village so he, Kit and dancing pippa made a plan of action. They would quickly swap pippa for the other cog that lay forgotten in the corner and then they would go down and get Melificent and John and Doriene arrested and sent away. 
+
+So they switch pippa for the cog and rushed down teh staircase. The three burst through the double doors and Kit cried "John, Melificent, Doriene you are under arrest!" Everyone turned round and John, Melificent and Doriene were lost for words. A little orphan was claiming them under arrest, but they knew full well why. Some police officers came and handcuffed all three and they were shipped off somewhere not so nice. 
+
+Oli and Pippa asked Kit whether he would like to come home with them, he agreed. So Pippa, Oli and Kit lived as you might say Happily Ever After
+
+###The End
 
