@@ -1,8 +1,95 @@
-\documentclass[16pt, a4paper]{article}
-\usepackage{hyperref}
-\usepackage[T1]{fontenc}
-\usepackage{lmodern}
+\documentclass[17pt, a4paper,extrafontsizes]{memoir}
+\listfiles
+\usepackage{comment}
+\headstyles{memman}
+\makepagestyle{chapter}
+
+ 
 \begin{document}
 
+
+\frontmatter
+\pagestyle{empty}
+
+
+% half-title page
+\vspace*{\fill}
+\begin{adjustwidth}{1in}{1in}
+\begin{flushleft}
+\HUGE\sffamily The
+\end{flushleft}
+\begin{center}
+\HUGE\sffamily  Clock
+\end{center}
+\begin{flushright}
+\HUGE\sffamily  Tower
+\end{flushright}
+%%\begin{center}
+%%\sffamily (Draft Edition 7)
+%%\end{center}
+\end{adjustwidth}
+\vspace*{\fill}
+\cleardoublepage
+
+% title page
+\vspace*{\fill}
+\begin{center}
+\HUGE\textsf{The Clock Tower}\par
+\end{center}
+\begin{center}
+\LARGE\textsf{}\par
+\end{center}
+\begin{center}
+\LARGE\textsf{A Fairy Tale Adventure}\par
+\end{center}
+
+\begin{center}
+\Huge\textsf{}\par
+\end{center}
+\begin{center}
+\HUGE\textsf{Flora Pizey}\par
+\bigskip
+\normalsize\textsf{Friday 5th September 2014}\par
+\medskip
+\normalsize\textsf{For Mummy and Ellie}\par
+\end{center}
+\vspace*{\fill}
+\def\THP{T\kern-0.2em H\kern-0.4em P}%   OK for CMR
+\def\THP{T\kern-0.15em H\kern-0.3em P}%   OK for Palatino
+\newcommand*{\THPress}{The East Oxford  Press}%
+\begin{center}
+\settowidth{\droptitle}{\textsf{\THPress}}%
+\textrm{\normalsize \THP} \\
+\textsf{\THPress} \\[0.2\baselineskip]
+
+\setlength{\droptitle}{0pt}%
+\end{center}
+\clearpage
+% copyright page
+\begingroup
+\footnotesize
+\setlength{\parindent}{0pt}
+\setlength{\parskip}{\baselineskip}
+%%\ttfamily
+\textcopyright{} 2014 Flora B. Pizey \\
+All rights reserved
+
+The East Oxford Press, Florence Park, Oxford.
+
+\begin{center}
+\begin{tabular}{ll}
+First edition:                        & 5 September 2014 \\
+\end{tabular}
+\end{center}
+\clearpage
+\mainmatter
+\thispagestyle{chapter}
+\pagestyle{simple}
+\chapterstyle{default}
 \input{The_Clocktower.tex}
+
+\begin{center}
+\textit{The End}
+\end{center}
+
 \end{document}

@@ -1,3 +1,7 @@
+*.idx
+*.glo
+*.ent
+*.ego
 *.aux
 *.log
 *.out
