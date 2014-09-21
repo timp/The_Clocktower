@@ -64,7 +64,7 @@ branch-bunk just above Pippa's hollow.
 
 "Night Oli!" Pippa called in response. 
 
-Meanwhile, while Pippa nad oli were going to bed, people were waking up 
+Meanwhile, while Pippa and oli were going to bed, people were waking up 
 somewhere not so far away on another world completely. 
 Lots of people lived there, normal people and a normal village	. The village 
 people were always going about their jobs normally every single day. Some of 
