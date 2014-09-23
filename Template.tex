@@ -1,8 +1,6 @@
 \documentclass[17pt, a4paper,extrafontsizes]{memoir}
 \listfiles
 \usepackage{comment}
-\headstyles{memman}
-\makepagestyle{chapter}
 
  
 \begin{document}
@@ -29,7 +27,7 @@
 %%\end{center}
 \end{adjustwidth}
 \vspace*{\fill}
-\cleardoublepage
+\clearpage
 
 % title page
 \vspace*{\fill}
@@ -51,16 +49,16 @@
 \bigskip
 \normalsize\textsf{Friday 5th September 2014}\par
 \medskip
-\normalsize\textsf{For Mummy and Ellie}\par
+\normalsize\textsf{For Mummy, Dady and Ellie}\par
 \end{center}
 \vspace*{\fill}
-\def\THP{T\kern-0.2em H\kern-0.4em P}%   OK for CMR
-\def\THP{T\kern-0.15em H\kern-0.3em P}%   OK for Palatino
-\newcommand*{\THPress}{The East Oxford  Press}%
+\def\TEOP{T\kern-0.2em E\kern-0.2em  O\kern-0.2em P}%   OK for CMR
+\def\TEOP{T\kern-0.15em E\kern-0.2em O\kern-0.2em P}%   OK for Palatino
+\newcommand*{\TEOPress}{The East Oxford  Press}%
 \begin{center}
-\settowidth{\droptitle}{\textsf{\THPress}}%
-\textrm{\normalsize \THP} \\
-\textsf{\THPress} \\[0.2\baselineskip]
+\settowidth{\droptitle}{\textsf{\TEOPress}}%
+\textrm{\normalsize \TEOP} \\
+\textsf{\TEOPress} \\[0.2\baselineskip]
 
 \setlength{\droptitle}{0pt}%
 \end{center}
@@ -82,10 +80,12 @@ First edition:                        & 5 September 2014 \\
 \end{tabular}
 \end{center}
 \clearpage
+\tableofcontents*
+
 \mainmatter
 \thispagestyle{chapter}
-\pagestyle{simple}
-\chapterstyle{default}
+\pagestyle{headings}
+\chapterstyle{demo3}
 \input{The_Clocktower.tex}
 
 \begin{center}

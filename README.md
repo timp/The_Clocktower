@@ -6,7 +6,7 @@
 ###Friday 5th September 2014
 
 \chapter{Before}
-\sffamily \HUGE
+\sffamily \large
 Once Upon a fairy tale day a girl and a boy lay down on crisp emerald green 
 grass, gazing up at a cool blue sky, misty clouds spread themselves out 
 on the picturesque scene
@@ -63,6 +63,8 @@ little glow worm in a glass jam jar.
 branch-bunk just above Pippa's hollow. 
 
 "Night Oli!" Pippa called in response. 
+
+\chapter{Old John Succeeds}
 
 Meanwhile, while Pippa and oli were going to bed, people were waking up 
 somewhere not so far away on another world completely. 
@@ -203,6 +205,8 @@ girl, you mean to say, no you mean she's got a name!" she said excitedly.
 "Phew! that saves us having to figure one out!" she said relieved.
 
 
+\chapter{A New Life}
+
 
 Pippa sat and the flopped back down again, but wait, the old oak tree didn't 
 make a disturbing creaking noise whenever you sit up. she lay down in the hot, 
@@ -259,11 +263,16 @@ The past few months Pippa had been sleeping in the ramshackle house with John
 and Doriene, they treated her as though she was their child, Pippa didn't mind 
 really but she cried sorrowfully every night. 
 
+\chapter{A Surprising Turn of Events}
+
 On one very unexpected day news came around, and first to Pippa seeing as she 
 lived with them, that Doriene, after all these years was pregnant. As soon as 
 John and Doriene knew they despised Pippa immediately. They banished her from 
 their home and Pippa huddled up in the town square at night shivering and 
 weeping more than ever. She couldn't bare it here any longer, but she had to. 
+
+\chapter{Things Come to a Head}
+
 
 Months grew by and John and Doriene got more evil. Years and they got worse, 
 their baby, who they named Melificent, grew and grew and when she was old enough 
@@ -364,6 +373,8 @@ swirling in this prison, she was a cog just a hopeless, lifeless cog. She realis
 never to see the light of day again. 
 
 By the time Melificent, John and Doriene came down everyone was already tucking into the marvellous banquet and those who weren't quite there yet didn't count how many people came down from the Clock Tower, except one: Kit. 
+
+\chapter{Ever After}
 
 Oli was sitting head in hands crying his way through the night. He asked the Elves (who were the only ones still awake at midnight) for the trillionth time to swear on their soul that they didn't tell _any_ one where Pippa slept. 
 
